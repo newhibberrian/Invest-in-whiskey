@@ -1,6 +1,6 @@
 # Invest-in-whiskey
 To invest in whiskey is one of the latest options and attention gaining areas in the investment industry. There are two principles ways to invest in whiskey and today we are going to discuss them. The first one is to invest directly in bottles and the second option is to invest in whiskey. It can either be an old or new bottle and in that, the brand and distillery are extremely important. In the casks of whiskey, the distillery from which the whiskey comes is less important. A good return of around 10-15% can be made from whiskey casks from any distillery. 
-Let’s have a detailed view at both the options and get a better view on how to # invest in whiskey - 
+Let’s have a detailed view at both the options and get a better view on how to invest in whiskey - 
 # Investing in bottles 
 Investing in the bottles requires a huge amount of capital in order to even make a minimum investment. In order to invest in bottles you need to buy them from auctions and releases by using your expertise and skills. Inspite of all the skills and expertise a high amount of return is not guaranteed when investing in bottles while making an investment in whiskey. 
 # Investing in Whiskey Casks 
